@@ -6,3 +6,8 @@
 ![Mecanica Racional 011](https://user-images.githubusercontent.com/36342673/128783854-ca34e43b-8f16-4e52-b15e-e9958c0630ac.jpg)
 ![Mecanica Racional 018](https://user-images.githubusercontent.com/36342673/128783990-b525864d-81d4-4465-9e23-81e22d52c774.jpg)
 ![Mecanica Racional 044](https://user-images.githubusercontent.com/36342673/128784050-e9cd8550-47c7-4ade-807e-bfee0e817733.jpg)
+![Mecanica Racional 047](https://user-images.githubusercontent.com/36342673/128784174-47d9a673-624d-4dc7-9ac3-40f31360fff9.jpg)
+![Mecanica Racional 048](https://user-images.githubusercontent.com/36342673/128784177-8262cccd-442f-4594-85c8-9acaa02e171b.jpg)
+![Mecanica Racional 050](https://user-images.githubusercontent.com/36342673/128784226-f7b58c6c-3b4b-47d5-8b34-7321b4f73a8b.jpg)
+![Mecanica Racional 051](https://user-images.githubusercontent.com/36342673/128784229-dfe7c4db-3bed-4110-a430-124cde746001.jpg)
+
