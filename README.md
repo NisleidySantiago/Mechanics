@@ -1,1 +1,2 @@
 # Mechanics
+# Static and Dynamic
